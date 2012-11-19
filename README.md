@@ -125,3 +125,5 @@ If you invest 10 USD you will get to stay at the premises for one night.
 What is the third reward?
 
 If you invest 100 USD you will get to stay at the premises for ten nights.
+
+Campaign link: http://www.indiegogo.com/projects/270822?a=589983        
